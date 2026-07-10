@@ -1,1 +1,1 @@
-Kin App Privacy Policy H5
+Nodia Privacy Policy H5
